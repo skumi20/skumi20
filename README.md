@@ -78,4 +78,4 @@ Repository coming soon.
 ## Contact
 
 - GitHub: [skumi20](https://github.com/skumi20)
-- LinkedIn: add your LinkedIn link here
+- LinkedIn: www.linkedin.com/in/szymon-sarna-219617310
